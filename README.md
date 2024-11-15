@@ -45,7 +45,7 @@ I'm a passionate software developer with 4+ years of experience, aiming to make 
 
 ### ⚡ Fun Facts
 - Gym enthusiast 🏋️ | Fitness goal: control and strengthen every week
-- Focused on discipline and self-growth 💪 | Quit drinking and smoking to prioritize health and professional success
+- Focused on discipline and self-growth 💪 
 - **Life Goal**: Becoming a millionaire by age 25 – working hard, dreaming big, and believing in my success 🚀
 
 Let’s connect and make amazing things happen! 👨‍💻✨
